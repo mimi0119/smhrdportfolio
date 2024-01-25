@@ -9,9 +9,9 @@
 </br>
 
 ## :pushpin: Contact
-- 이메일: wjdgud9420@gmail.com
+- 이메일: als921851@icloud.com
 - 블로그: 
-- 깃헙: https://github.com/JungHyung2
+- 깃헙: https://github.com/mimi0119
 
 </br>
 
